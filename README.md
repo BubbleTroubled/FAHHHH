@@ -1,2 +1,3 @@
-# FAHHHH
-Booty chek 
+# FAHHH
+HOLAAAAAA Its me! your gooner,, AXEL!!!
+I DONT KNOW HOW TO WORK THESE IM TRYING MY BEST OK 😭
